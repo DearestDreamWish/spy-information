@@ -33,3 +33,6 @@ Hertz is a unit of frequency (of change in state or cycle in a sound wave, alter
 Psychology:
 20 times hypnosis?
 The average person can only hold about 7 (plus or minus 2) items in their working memory at a time. New hacking target?
+
+Psychiatry:
+One can be mimicking, because the one is feeling threatened.
