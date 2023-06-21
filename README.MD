@@ -41,7 +41,6 @@ Psychiatry:
 One can be mimicking, because the one is feeling threatened.
 
 Routine to rehab:
-
 Read and think: Your thoughts come by itself, with concentration it can come by with effort.
 
 Keep the common world in thought.
