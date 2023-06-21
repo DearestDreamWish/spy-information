@@ -42,17 +42,10 @@ One can be mimicking, because the one is feeling threatened.
 
 Routine to rehab:
 Read and think: Your thoughts come by itself, with concentration it can come by with effort.
-
 Keep the common world in thought.
-
 Meditate every day with positive and constructive sentences.
-
 Keep distance from thinking about the mental structure and mental sickness, unless it's too much or there are clear signs, but don't keep get into it.
-
 Every perspective has a meaning likewise has world views.
-
 Hallucinations can be expression for feelings or thoughts. Remember that it just can, it's not always right.
-
 Dissociations are thoughts from fantasy, meanwhile visual thoughts can be imaginative and relatable.
-
 Reflect before sleep and after aobut what has happened in the real world.
