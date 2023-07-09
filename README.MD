@@ -32,7 +32,7 @@ Humans with normal hearing can hear sounds between 20 Hz and 20,000 Hz.
 The human ear detects half a millisecond delay in sound.
 
 Electronics:
-Hertz is a unit of frequency (of change in state or cycle in a sound wave, alternating current, or other cyclical waveform) of one cycle per second.
+Hertz is an unit of frequency (of change in state or cycle in a sound wave, alternating current, or other cyclical waveform) of one cycle per second.
 1 second = 1000 millisecond. 20,000/1000=20.
 
 Psychology:
