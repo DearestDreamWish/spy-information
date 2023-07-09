@@ -56,5 +56,4 @@ Remember to remember the real world and train your brain without exhausting, but
 If you think this is funny, you could simulate and think everything through to train your brain.
 
 If you want to help:
-You could try cracking with my idea as base.
-Pictures will be provided:
+You could try cracking psychosis with my idea as base. ![Psychosis structure model](https://github.com/DearestDreamWish/spy-information/blob/main/20221005_123606.jpg)
