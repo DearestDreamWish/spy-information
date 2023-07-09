@@ -12,13 +12,15 @@ https://www.thedefensepost.com
 
 https://breakingdefense.com
 
-US: https://www.defenseone.com/?oref=d1-nav
-
 https://www.intelligenceonline.com
 
 https://intelligencecommunitynews.com
 
-https://www.africaintelligence.com
+Africa: https://www.africaintelligence.com
+
+US: https://www.defenseone.com/?oref=d1-nav
+
+
 
 Neuroscience:
 The brain can heal, but it takes time.
