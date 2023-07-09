@@ -37,7 +37,7 @@ Hertz is an unit of frequency (of change in state or cycle in a sound wave, alte
 
 Psychology:
 20 times hypnosis?
-The average person can only hold about 7 (plus or minus 2) items in their working memory at a time. New hacking target?
+The average person can only hold about 7 (plus or minus 2) items in their working memory at a time. New hacking target? Maybe not the same methods, but could be a start. Look into neuro linguistic programming(NLP), read into neuroscience and psychology.
 
 Psychiatry:
 One may be mimicking, because the one is feeling threatened.
@@ -46,8 +46,9 @@ Routine to rehab:
 Read and think "Your thoughts come by itself, with concentration it can come by with effort."
 Keep the common world in thought.
 Meditate every day with positive and constructive sentences.
-Keep distance from thinking about the mental structure and mental sickness, unless it's too much or there are clear signs, but don't keep get into it.
+Keep distance from thinking about the mental structure and mental sickness, unless it's too much or there are clear signs, but don't keep get into it. Have someone that you can trust help you read online and ask.
 Every perspective has a meaning likewise has world views.
 Hallucinations can be expression for feelings or thoughts. Remember that it just can, it's not always right.
 Dissociations are thoughts from fantasy, meanwhile visual thoughts can be imaginative and relatable.
-Reflect before sleep and after aobut what has happened in the real world.
+Reflect before sleep and after about what has happened in the real world.
+Remember to remember and train your brain without exhausting, but have energy enough for the day.
