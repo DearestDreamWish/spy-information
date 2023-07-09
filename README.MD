@@ -40,7 +40,7 @@ Psychology:
 The average person can only hold about 7 (plus or minus 2) items in their working memory at a time. New hacking target?
 
 Psychiatry:
-One can be mimicking, because the one is feeling threatened.
+One may be mimicking, because the one is feeling threatened.
 
 Routine to rehab:
 Read and think "Your thoughts come by itself, with concentration it can come by with effort."
