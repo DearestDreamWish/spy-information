@@ -51,4 +51,10 @@ Every perspective has a meaning likewise has world views.
 Hallucinations can be expression for feelings or thoughts. Remember that it just can, it's not always right.
 Dissociations are thoughts from fantasy, meanwhile visual thoughts can be imaginative and relatable.
 Reflect before sleep and after about what has happened in the real world.
-Remember to remember and train your brain without exhausting, but have energy enough for the day.
+Remember to remember the real world and train your brain without exhausting, but have energy enough for the day.
+
+If you think this is funny, you could simulate and think everything through to train your brain.
+
+If you want to help:
+You could try cracking with my idea as base.
+Pictures will be provided:
