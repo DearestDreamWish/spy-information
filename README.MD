@@ -52,7 +52,7 @@ Hallucinations can be expression for feelings or thoughts. Remember that it just
 Dissociations are thoughts from fantasy, meanwhile visual thoughts can be imaginative and relatable.
 Reflect before sleep and after about what has happened in the real world.
 Remember to remember the real world and train your brain without exhausting, but have energy enough for the day.
-Focus to change bad habits and keeping good habits. Listen to positive vibes and positive or neutral music instead bad or something, that has a bad influence.
+Focus to change bad habits and keeping good habits. Listen to positive vibes and positive or neutral music instead bad or something, that has a bad influence. Keep remembering true good moments.
 
 If you think this is funny, you could simulate and think everything through to train your brain.
 
