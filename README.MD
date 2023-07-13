@@ -46,12 +46,13 @@ Routine to rehab:
 Read and think "Your thoughts come by itself, with concentration it can come by with effort."
 Keep the common world in thought.
 Meditate every day with positive and constructive sentences.
-Keep distance from thinking about the mental structure and mental sickness, unless it's too much or there are clear signs, but don't keep get into it. Have someone that you can trust help you read online and ask.
+Keep distance from thinking about the mental structure and mental sickness, unless it's too much or there are clear signs, but don't keep get into it and focus on facts. Have someone that you can trust help you read online and ask.
 Every perspective has a meaning likewise has world views.
 Hallucinations can be expression for feelings or thoughts. Remember that it just can, it's not always right.
 Dissociations are thoughts from fantasy, meanwhile visual thoughts can be imaginative and relatable.
 Reflect before sleep and after about what has happened in the real world.
 Remember to remember the real world and train your brain without exhausting, but have energy enough for the day.
+Focus to change bad habits and keeping good habits. Listen to positive vibes and positive or neutral music instead bad or something, that has a bad influence.
 
 If you think this is funny, you could simulate and think everything through to train your brain.
 
