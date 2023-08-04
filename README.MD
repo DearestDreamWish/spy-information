@@ -42,6 +42,11 @@ The average person can only hold about 7 (plus or minus 2) items in their workin
 Psychiatry:
 One may be mimicking, because the one is feeling threatened.
 
+Signs:
+Anxiety=Weakened functioning, paralysis, shaking, muscle tension, disturbance, restless, bad sleep, fatigue and concentration problems.
+Sad and depression=Discouraged, lost initiative and will, appearance doesn't matter, stress eating, appear insecure and uncertain, social isolation, nervous, concentration weakened, self-blame and feelings like less self-worth and inadequate, hopeless and confused.
+
+
 Routine to rehab:
 Read and think "Your thoughts come by itself, with concentration it can come by with effort."
 Keep the common world in thought.
