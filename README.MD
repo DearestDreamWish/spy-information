@@ -57,6 +57,8 @@ Dissociations are thoughts from fantasy, meanwhile visual thoughts can be imagin
 Reflect before sleep and after about what has happened in the real world.
 Remember to remember the real world and train your brain without exhausting, but have energy enough for the day.
 Focus to change bad habits and keeping good habits. Listen to positive vibes and positive or neutral music instead bad or something, that has a bad influence. Keep remembering true good moments. Keep track of your own body language and your feelings. Note down abnormalities and check if their are abnormalities, but only if it's convenient. Keep remembering the true world and don't do harm unless it's necessary. Keep remembering that you are yourself and that only you can control yourself.
+Take care of yourself hygiene and nutrition.
+Drink enough water every day.
 
 If you think this is funny, you could simulate and think everything through to train your brain.
 
