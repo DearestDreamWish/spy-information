@@ -45,7 +45,7 @@ One may be mimicking, because the one is feeling threatened.
 Signs:
 Anxiety=Weakened functioning, paralysis, shaking, muscle tension, disturbance, restless, bad sleep, fatigue and concentration problems.
 Sad and depression=Discouraged, lost initiative and will, appearance doesn't matter, stress eating, appear insecure and uncertain, social isolation, nervous, concentration weakened, self-blame and feelings like less self-worth and inadequate, hopeless and confused.
-
+Schizophrenia=Hallucinations, Delusions, Disorganised thinking, Lack of motivation, Slow movement, Change in sleep patterns, Poor grooming or hygiene, Changes in body language and emotions, Less interest in social activities, Low sex drive, Hallucinations, Muddled thinking, hearing voices, seeing things which other people don’t see, feeling someone touching you who is not there, smelling things which other people cannot, Lack of motivation, Losing interest in life and activities, Problems concentrating, Not wanting to leave your house, Not wanting to have conversations with people, Feeling uncomfortable with people, Feeling that you haven’t got anything to say, Losing your normal thoughts and feelings, No energy, problems with remembering things, problems with learning new things, problems with concentrating, problems with making decisions, Irresponsible and unpredictable behaviour, Problems with speech, Self-isolation, Pranks and giggling and health complaints, Unusual movements, often switching between being very active and very still, psychotic.
 
 Routine to rehab:
 Read and think "Your thoughts come by itself, with concentration it can come by with effort."
