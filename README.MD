@@ -21,7 +21,6 @@ Africa: https://www.africaintelligence.com
 US: https://www.defenseone.com/?oref=d1-nav
 
 
-
 Neuroscience:
 The brain can heal, but it takes time.
 Around 60 bits per second for the maximum processing speed of the human brain.
@@ -64,3 +63,5 @@ If you think this is funny, you could simulate and think everything through to t
 
 If you want to help:
 You could try cracking psychosis with my idea as base. There's an english version in text form else you can translate from danish, if you don't understand. ![Psychosis structure model](https://github.com/DearestDreamWish/spy-information/blob/main/20221005_123606.jpg)If memory, logic and senses were put in a set like a half bubble. And if structure, thought, feeling and intelligence in this sequence were put in a set and interconnected in the sequence called F L O W and diagonal not named and additionally between the named connections/links. And if sequence, plan and action were put in a set interconnected making a triangle. And if from high to low order making a stair The, perspective and momentum were put in a set. And if in a half box where top has link and bottom difference were a set. Would all these sets then not make a puzzle of the consciousness, which when solved then be able to change a persons psychosis?
+
+This gets updated sometimes, so remember to check for updates.
