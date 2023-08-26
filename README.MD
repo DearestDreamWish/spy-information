@@ -23,7 +23,7 @@ US: https://www.defenseone.com/?oref=d1-nav
 
 Neuroscience:
 The brain can heal, but it takes time.
-Around 60 bits per second for the maximum processing speed of the human brain.
+The conscious can process 120 bits of information per second.
 We can experience sensory stimuli that's presented for as little as 50 milliseconds (about one-twentieth of a second). It is thought that our brains can, in fact, respond to information that's much briefer than this, lasting less than a quarter of a millisecond.
 At least 0.5 ms per synapse. Synapses are cleared within about 1 ms.
 A nerve impulse travels at a maximum speed of 120 m/sec.
