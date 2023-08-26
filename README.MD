@@ -25,6 +25,7 @@ Neuroscience:
 The brain can heal, but it takes time.
 The conscious can process 120 bits of information per second.
 The subconscious can process 11 million bits of information per second.
+An average person has 12 k to 60 k thoughts per day.
 We can experience sensory stimuli that's presented for as little as 50 milliseconds (about one-twentieth of a second). It is thought that our brains can, in fact, respond to information that's much briefer than this, lasting less than a quarter of a millisecond.
 At least 0.5 ms per synapse. Synapses are cleared within about 1 ms.
 A nerve impulse travels at a maximum speed of 120 m/sec.
