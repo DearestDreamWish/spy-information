@@ -64,7 +64,7 @@ Focus to change bad habits and keeping good habits. Listen to positive vibes and
 Take care of yourself with hygiene and nutrition.
 Drink enough water every day.
 Meditate by closing your eyes and focusing on only your breathing for 20 minutes every day.
-Documentate wrong assumptions and conclusions and solve it. Listen to tones from 8  hz to 14 hz in a loop. Try online visualization scripts. If you lose control imagine your body where it is. Train your mind again with small tasks, it doesn't matter what it is, just work your mind to a good balance. Play games to reinforce your skills and be in a positive social circle to reinforce yourself and your personality.
+Documentate wrong assumptions and conclusions and solve it. Listen to tones from 8  hz to 14 hz in a loop. Try online visualization scripts. If you lose control imagine your body where it is. Train your mind again with small tasks, it doesn't matter what it is, just work your mind to a good balance. Play games to reinforce your skills and abilities and be in a positive social circle to reinforce yourself and your personality.
 
 
 If you think this is funny, you could simulate and think everything through to train your brain.
