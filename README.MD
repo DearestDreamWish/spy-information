@@ -220,6 +220,78 @@ Be objective and not subjective.
 Self disciplin is important.
 Accept what you can't control.
 You can have influence by controlling yourself.
+Focus on what you can control.
+Learn from your opponents.
+Find potential partners and take the one which is like you.
+Everything ends up being surpassed.
+Don't let the same people disappoint you twice.
+Someone else's progress does not diminish your progress.
+Don't react, boycott them with silence.
+Your brain is the strongest muscle, so train it a lot.
+Better days are coming, you won't wake up forever with a heavy heart.
+Hard times always reveal true friends.
+Take care of your body. Remember that health is another form of wealth.
+Be alone until you are appreciated.
+Sometimes you have to go through the worst to get the best.
+No matter how hard a past, you can always start over.
+You alone are enough, you don't have to prove anything to anyone.
+Never forget who helped you in the hard times.
+Patience is your ally.
+Your vision will be blurred, but it will become visible in time.
+You deserve everything, so respect and appreciate everything.
+There are many who love you, so don't focus on those who don't.
+Accept what is, let what was go, and have hope for what will be.
+A negative mind never gives a positive life.
+Be calm when you've been through it before, because you've been through it before.
+It is only you who has to make sure you are happy.
+Money is a tool. Freedom is the goal.
+Not telling others everything is self-care.
+Time separates you from others, so enjoy the moments.
+Time reveals who means what to whom.
+Remember, something has to end for something better to begin.
+Be careful who you trust, salt and sugar are similar.
+Seek respect not attention, it lasts longer.
+There is always someone who doesn't recognize your worth, don't let it be you.
+No regrets just do better next time.
+Let go of the wrong people so you meet the right people.
+Forgive yourself, you have changed.
+Don't give up when it's hard, but find a smart solution if there is one otherwise work hard.
+Show will, but do not willfully create others.
+You always have to work hard to be successful.
+Tell only those closest and trustworthy with good confidence about life.
+If it gives you pleasure, be quiet about it.
+No one is too busy, it's all about priorities.
+It's your mind, control it or someone else will.
+There may be good moments even in the future, so get ready.
+Be independent as much as possible.
+You don't go back in time.
+Be proud of yourself for your hard work.
+Everyone can cause pain so focus on those who's worth it.
+Work on yourself for yourself.
+Visualize steps for an action to become a habit.
+Strengthen the right will.
+Always be critical.
+Train your body and mind.
+Practice imagining having it and letting it go.
+Practice detachment.
+Accept your weaknesses and strengths.
+Always prepare instead of preconceived.
+Seek serenity. Change the behavior to this.
+Prejudice is ignorance and sometimes arrogance.
+I cannot change people, but they change themselves, and I can influence that change.
+Train empathy.
+One thing at a time, for full concentration.
+Remember to breathe deeply a few times.
+Feelings and problems should only be shared with those most trusted.
+Learn from mistakes.
+Problems and setbacks are opportunities to learn.
+Be grateful. It is important.
+Smart goals not just goals. Steps to experience success.
+Always choose the wisest solution.
+Self management is important.
+I have to live in the present, but plan for the future when it comes.
+Self control is important.
+Practice makes mastery.
 
 
 This gets updated sometimes, so remember to check for updates.
